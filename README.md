@@ -2,6 +2,8 @@
 
 ### [Check NEB Class 12 Result 2081 here](https://bit.ly/nebclass12result)
 
+### [Click here to Check Your NEB Result Now](https://bit.ly/nebclass12result)
+
 Aug 2: The National Examination Board (NEB) is all set to announce Class 12 results on Friday. 
 
 According to the Board, a meeting was held at 10 AM today to publish the results. The results will be published once the Board collectively decides to publish them today and if there are no technical difficulties. 
